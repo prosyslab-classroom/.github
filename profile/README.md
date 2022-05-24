@@ -1,4 +1,4 @@
-## Prosys Lab ClassroomHi there 📖📚🎓
+## Prosys Lab Classroom 📖📚🎓
 
 <!--
 
